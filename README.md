@@ -1,4 +1,5 @@
- 🐟🐟🐟 sakana~~   
+🐟🐟🐟 sakana~~  
+I'm from Taiwan  
 A 9th grade weirdo  
 I dont know how to code  
 Teach me if u can :D  
