@@ -1,5 +1,9 @@
-### Hi there 👋
-
+ 🐟🐟🐟 sakana~~   
+A 9th grade weirdo  
+I dont know how to code  
+Teach me if u can :D  
+That would be lovely if u do that  
+Discord: さかな＃
 <!--
 **IaintHamburger/IaintHamburger** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
