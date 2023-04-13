@@ -4,7 +4,7 @@ A 9th grade weirdo
 I dont know how to code  
 Teach me if u can :D  
 That would be lovely if u do that  
-Discord: さかな＃8026
+Discord: Hambaga＃8026
 <!--
 **IaintHamburger/IaintHamburger** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
