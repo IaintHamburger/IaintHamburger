@@ -1,10 +1,10 @@
-🐟🐟🐟 sakana~~  
-I'm from Taiwan  
-A 9th grade weirdo  
+Taiwanese, 17y/o
+A 11th grade weirdo  
 I dont know how to code  
 Teach me if u can :D  
-That would be lovely if u do that  
-Discord: Hambaga＃8026
+That would be lovely if u do that
+I can teach you guitar if you want 👀
+Discord: iainthamburger
 <!--
 **IaintHamburger/IaintHamburger** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
